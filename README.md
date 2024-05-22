@@ -9,4 +9,4 @@
 | 3. | Rini Ariza  | 312210337 | TI.22.A3 |
 | 4. | Hilman Ihza Amrullah |  312210310 | TI.22.A3 |
 
-## <img src= https://github.com/rniarzz/Project-Checklist-Toilet/assets/115542704/33b030e8-be9a-40c0-8779-08ed7c184356 width="130px"><br> [Link Dokumentasi YouTube](https://youtu.be/OPDL2kwZFPY)
+## <img src= https://github.com/rniarzz/Project-Checklist-Toilet/assets/115542704/33b030e8-be9a-40c0-8779-08ed7c184356 width="130px"><br> [Link Dokumentasi YouTube](https://youtu.be/m4rofIYs83A?si=DvFSwdTarpEDfNiP)
